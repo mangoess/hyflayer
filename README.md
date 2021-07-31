@@ -14,4 +14,4 @@ If you're only viewing, there's no problem with that
 If you want to copy like 5 lines for your own project, that'd be cool!
 
 # QUESTIONS?
-If you have any question's at all, don't hesitate and contact me here, discord.gg/MyjJGfkt54
+If you have any question's at all, don't hesitate and contact me here, https://www.discord.gg/MyjJGfkt54
